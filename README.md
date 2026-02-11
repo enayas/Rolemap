@@ -1,4 +1,4 @@
-<img width="666" height="375" alt="Untitled_design__2_-removebg-preview" src="https://github.com/user-attachments/assets/9aa0ccab-b7e1-4bf8-a667-0caaee166bcf" />
+<img width="867" height="218" alt="Screenshot 2026-02-10 at 10 00 46 PM" src="https://github.com/user-attachments/assets/8671e48e-1878-45f5-8c22-9eac944cc6f2" />
 
 ---
 
