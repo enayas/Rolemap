@@ -1,3 +1,7 @@
+<img width="666" height="375" alt="Untitled_design__2_-removebg-preview" src="https://github.com/user-attachments/assets/9aa0ccab-b7e1-4bf8-a667-0caaee166bcf" />
+
+---
+
 # Rolemap 🧭
 
 > Daily quests for landing your dream job.
